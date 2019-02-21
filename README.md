@@ -1,4 +1,4 @@
 # hello-world
-just messin
+i know im cool
 im just a small town girl, living in a lonely world
 took a midnight train going annnyyyywheerrreeee
